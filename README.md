@@ -1,0 +1,5 @@
+- 👋 Привет, я геймер из России! (hi to all NATO & Brics country from Russia!)
+- 👀 Мне интересны игры PvE, PvP, Экшены. (I'm interested in PvE, PvP, Action games.)
+- 🌱 Можете помочь мне в програмировании, буду благодарен, пишите в Discord спрути#5238 (I can help me with programming, I will be grateful, write to Discord спрути#5238)
+- 💞️ Хочу создавать игры в Unity пиксельные заранее спасибо! (I want to create games in Unity pixel thanks in advance!)
+- 📫 Что-бы связaться со мной пишите на почту nikitaefremovpro@gmail.com (To contact me, write to email nikitaefremovpro@gmail.com)
